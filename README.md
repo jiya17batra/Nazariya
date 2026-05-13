@@ -2,4 +2,4 @@
 ## 🌐 View
 
 🔗 **View the Project Here:**  
-https://jiya17batra.github.io/nazariya/
+https://jiya17batra.github.io/Nazariya/
